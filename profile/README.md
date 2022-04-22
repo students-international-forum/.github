@@ -1,1 +1,1 @@
-# [STUDENTS INTERNATIONAL FORUM](https://studentsinternatioalforum.com)
+# [STUDENTS INTERNATIONAL FORUM](https://studentsinternationalforum.com)
